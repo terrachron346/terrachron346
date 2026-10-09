@@ -45,7 +45,7 @@
 <img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />My tiktok:terrachron_caramel
 
 
-   <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />Also DNC my skins w/o permit
+   <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />Also DNC my skins w/o permit and DNCUF(do not cover unless friend)
 
    
 
