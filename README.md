@@ -32,7 +32,7 @@
 
 
 
-   <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />Thin ice : People over 18 IWC unless i know you
+   <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />Thin ice : People over 18 IWC unless i know you or unless friends
 
 <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />Oh and I'm a digital artist ! there's one of my recent art posts!
 
