@@ -29,6 +29,8 @@
     If you also have the dragon cookies from crob as ur favorite too BMF !!!
 
 <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />BYF:My fav CRK ships is Shadowvanilla, Shadowsugar and Purelily. if i became harsh when you do something wrong, lmk and that I'm very sorry for my behavior ! 😔 Also please don't suddenly friend me if i haven't seen u before :/ and I'm neither alone or with friends in PT
+
+
    <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />Thin ice : People over 18 IWlittleC(interact with little caution) unless i know you or unless friends
 
 <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />Oh and I'm a digital artist ! there's one of my recent art posts!
